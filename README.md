@@ -12,5 +12,5 @@ dnc my skins either, limited inspo is ok js ask first</br>
 </p>
 
 <p align="center">
- <a href= "https://set.atabook.org"> ata</a>ㅤㅤ<a href= "https://pronouns.cc/@ahri">prns.cc</a>ㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a> 
+ <a href= "https://set.atabook.org"> ata</a>ㅤㅤ<a href= "https://pronouns.cc/@ahri">prns.cc</a>ㅤㅤ<a href= "https://rentry.co/8ego">rentry</a> 
 </p>
