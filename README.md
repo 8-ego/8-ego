@@ -3,7 +3,7 @@
 day 1 return, are we survivorduo?</br>
 i guess im like so4 sx9 sp6, ty kaz for help</br>
 </br>
-luh u kaz shig xal ❤️ luh u nox luc dante ❤️</br>
+luh u kaz shig xal ❤️ luh u nox luc ❤️</br>
 and the rest of my friends >_o</br>
 </br>
 racists dni, disorder fakers & their supporters dni, proshippers dni</br>
