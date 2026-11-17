@@ -4,7 +4,7 @@ fazaplaya was slain by cmeo using [im a wittle kitty boy uwu..nya ichi nii san n
 </br>
 i guess im like so4 sx9 sp6, ty kaz for help</br>
 </br>
-luh u kaz shig & xal ❤️ luh u nox & luc ❤️</br>
+luh u shig wumble kaz & xal ❤️ luh u nox & luc ❤️</br>
 luh u yuuki yom fj faza mody jane & artual ❤️</br>
 and the rest of my friends >_o</br>
 </br>
