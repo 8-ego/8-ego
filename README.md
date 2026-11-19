@@ -2,10 +2,8 @@
 <p align="center">
 fazaplaya was slain by cmeo using [im a wittle kitty boy uwu..nya ichi nii san nya!]</br>
 </br>
-i guess im like so4 sx9 sp6, ty kaz for help</br>
-</br>
-luh u shig wumble kaz & xal ❤️ luh u nox & luc ❤️</br>
-luh u yuuki yom fj faza mody jane & artual ❤️</br>
+luh u shig wumble & xal ❤️ luh u nox & luc ❤️</br>
+luh u mellow yom fj artual yuuki jane faza & amy ❤️</br>
 and the rest of my friends >_o</br>
 </br>
 racists dni, disorder fakers & their supporters dni, proshippers dni</br>
